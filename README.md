@@ -1,1 +1,0 @@
-# nicky-gorinov.github.io
